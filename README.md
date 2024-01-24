@@ -1,1 +1,1 @@
-These are just Assets that i use for my personal projects.
+These are just assets that i use for my personal projects.
